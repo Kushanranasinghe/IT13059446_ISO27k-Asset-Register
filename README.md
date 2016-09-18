@@ -1,0 +1,1 @@
+# IT13059446_ISO27k-Asset-Register
